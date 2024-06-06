@@ -2,7 +2,7 @@
 
 Meu nome é `Flávio Eduardo`
 
-- Estudo na escola [Nicota](instagram/escola.donanicota)
+- Estudo na escola [Nicota](https://www.instagram.com/escola.donanicota)
 - Estou estudando no 3º EM ( terceiro ano do ensimo medio)
 - Tenho 17 anos
 - Estou me desenvolvendo na linguagem de programação estudando  na CMSP - [Alura](https://www.alura.com.br) 
