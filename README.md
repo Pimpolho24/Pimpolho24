@@ -1,6 +1,6 @@
 ### Bem - vindo  ao meu perfil. Sinta - se à vontade 🤍 🍀 💙 
 
-Meu nome é `Flávio Eduardo`
+Meu nome é `Flávio Eduardo` 🥇 
 
 - Estudo na escola [Nicota](https://www.instagram.com/escola.donanicota)
 - Estou estudando no 3º EM ( terceiro ano do ensimo medio)
@@ -15,7 +15,7 @@ Meu nome é `Flávio Eduardo`
 
 00001082132482sp@al.educacao.sp.gov.br - email institucional
 
-[flavinho.pinto](https://www.instagram.com/flavinho.pinto)
+[flavinho.pinto](https://www.instagram.com/flavinho.pinto)  - Meu Instagram 
 
 ![](https://media1.tenor.com/m/uO37-aKreAEAAAAC/kakashi-naruto.gif)   ![](https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
 ![](https://media1.tenor.com/m/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
