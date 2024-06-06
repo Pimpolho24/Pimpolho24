@@ -15,7 +15,7 @@ Meu nome é `Flávio Eduardo`
 
 00001082132482sp@al.educacao.sp.gov.br - email institucional
 
-@flavinho.pinto - Instagram 
+[flavinho.pinto](https://www.instagram.com/flavinho.pinto)
 
 ![](https://media1.tenor.com/m/uO37-aKreAEAAAAC/kakashi-naruto.gif)   ![](https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
 ![](https://media1.tenor.com/m/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
